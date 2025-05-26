@@ -6,7 +6,7 @@
 <p align ="center">"𝓓𝓲𝓭 𝓘 𝓮𝓿𝓮𝓻 𝓽𝓮𝓵𝓵 𝔂𝓸𝓾 𝓘'𝓿𝓮 𝓰𝓸𝓽 𝓪 𝓽𝓱𝓲𝓷𝓰 𝓯𝓸𝓻 𝓫𝓻𝓾𝓷𝓮𝓽𝓽𝓮𝓼?" - 𝓔𝓕
 </p>
 <p align ="center">☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆
-Ꮺ  mari/ryu/luci  ೀ filo ✧
+Ꮺ  mari/luci  ೀ filo ✧
 જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  .ᐟ ˚⊹ ᰔ
 ☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆  
 </p>
