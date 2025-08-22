@@ -7,6 +7,6 @@
 </p>
 <p align ="center">☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆
 Ꮺ  mari/luci  ೀ filo ✧
-જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  .ᐟ ˚⊹ ᰔ
+જ⁀➴ c+h ☑  ♡  ೀ  semi-verbal/non-verbal  ೀ  rpdni/sys  ೀ int with caution  ೀ  proship DNI .ᐟ ˚⊹ ᰔ
 ☆ ︶︶︶  ౿ ָ🔆 𞥊   ︶︶︶ ☆  
 </p>
